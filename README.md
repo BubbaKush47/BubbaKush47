@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BubbaKush47
+- 👀 I’m interested in music,guitar,LOL,movie,comic
+- 🌱 I’m learning be a good man
+- 💞️ I’m married
+- 📫 1295078357@qq.com
